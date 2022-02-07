@@ -1,1 +1,0 @@
-Silahkan bebas komen
